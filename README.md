@@ -1,2 +1,2 @@
 # goodluck
-luck going to happen every week.. think something new
+luck going to change every sec.. do it now lets see the result
